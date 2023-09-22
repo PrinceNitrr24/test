@@ -1,3 +1,3 @@
 ek din mar jayega
-pagal ki maut
+lebra ki tarah
 
